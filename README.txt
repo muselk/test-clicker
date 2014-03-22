@@ -1,1 +1,0 @@
-You a bitch nigga if you dont understand how to use this. You just open the html faggot. Now go be dumb somewhere else.
